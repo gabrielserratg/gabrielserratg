@@ -6,3 +6,6 @@ pretendo volta a algum dia a estudar mais sobre programação e de prefencia bac
 
 #edit
 Trabalho rastreando pessoas :/
+
+
+Discord: Gabriel.#8910
