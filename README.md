@@ -7,4 +7,4 @@ pretendo volta a algum dia a estudar mais sobre programação e de prefencia bac
 Meu hobby é bloodhound :/
 
 
-###Discord: Gabriel.#8910
+Discord: Gabriel.#8910
