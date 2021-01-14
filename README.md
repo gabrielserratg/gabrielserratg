@@ -4,7 +4,7 @@ Atualmente não estou fazendo nada, ando desanimado, triste com alguns problemas
 
 pretendo volta a algum dia a estudar mais sobre programação e de prefencia backend.
 
-Trabalho com bloodhound, somente serviço privado :/
+Trabalho como bloodhound, somente serviço privado :/
 
 
 Discord: Gabriel.#8910
